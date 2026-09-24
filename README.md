@@ -4,4 +4,4 @@ Full-Stack Developer
 
 ## Connect with me
 
-- 💼 [LinkedIn](www.linkedin.com/in/kd-chy-809108295)
+- 💼 [LinkedIn](https://www.linkedin.com/in/kd-chy-809108295/?isSelfProfile=true)
